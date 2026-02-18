@@ -16,7 +16,7 @@
 
 ## Τεχνολογίες
 - Scratch
-- Makey Makey
+- Compatible Makey Makey
 - Physical Computing
 
 ## Εκπαιδευτικό Πλαίσιο
