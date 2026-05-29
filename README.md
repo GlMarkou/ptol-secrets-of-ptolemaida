@@ -93,7 +93,11 @@
 (https://blogs.sch.gr/14nipptol/2026/05/29/symmetochi-ston-8o-panellinio-diagonismo-anoichton-technologion-stin-ekpaideysi/)
 
 
-
+Ιστορικές Πηγές & Βιβλιογραφία:
+«Εορδαία, Ένας Αιώνας» – Αρχιμ. Νικηφόρος Π. Χρ. Μανάδης
+«Εορδαία: η ακτινοβόλος εστία του ελληνικού θαύματος» – Θεμιστοκλής Απατσίδης
+Επίσημη Ιστοσελίδα Δήμου Εορδαίας
+Βικιπαίδεια (Λήμμα: Πτολεμαΐδα / Εορδαία)
 
 ## Άδεια
 Creative Commons Attribution 4.0 (CC BY 4.0)
