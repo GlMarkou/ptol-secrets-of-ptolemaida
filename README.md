@@ -77,6 +77,18 @@
 
 ![Creating our Storybox Stations 2](kataskevi.2.jpg)
 
+Συνδέσαμε τα καλώδια, αγγίξαμε τις σελίδες και σας παρουσιάζουμε την ιστορία της Πτολεμαΐδας μας!
+
+[Δείτε το βίντεο του έργου μας](https://canva.link/yxwtushnvwx0kzu))
+
+Δ’ ΦΑΣΗ – ΔΙΑΧΥΣΗ
+
+Η διάδοση της πρότασής μας έγινε μέσω του ιστολογίου του σχολείου μας:
+
+(https://blogs.sch.gr/14nipptol/2026/05/29/symmetochi-ston-8o-panellinio-diagonismo-anoichton-technologion-stin-ekpaideysi/)
+
+
+
 
 ## Άδεια
 Creative Commons Attribution 4.0 (CC BY 4.0)
